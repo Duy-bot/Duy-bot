@@ -1,0 +1,3 @@
+- 👋 xin chào tôi là lươn
+- 👀 tôi đến từ sao hỏa
+- 🌱 đam mê wave và gái
